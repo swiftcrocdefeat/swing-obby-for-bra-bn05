@@ -1,4 +1,4 @@
-
+Experience hypershot like never before with hypershot new Script, the #1 Script. Includes anti-ban and auto-heal for unbeatable performance.
 
 
 
